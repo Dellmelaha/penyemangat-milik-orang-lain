@@ -1,0 +1,1 @@
+# penyemangat-milik-orang-lain
